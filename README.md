@@ -1,0 +1,2 @@
+# trocadordecordefundo
+não falamos do bruno não não não não falamos do brunooooo mas iamos nos casar iamos nos casar tudo estava pronto e não havia uma nuvem no ceu nada de nuvens no ceu bruno chegou ja tocando o terror trovão ce quer assumir o meu papel desculpa mi vida vai laaaa bruno diz que vai chuver e adivinha e eu começo a me perder abuela pega a sombrinhaaaa ja começa a escurecer foi a perfeição mas desde então não falamos do bruno não não não
